@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lkodestyle
-- 👀 I’m interested in IA, and security
+- 👀 I’m interested in IA, security and web design
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate in a project that works whith artificial intelligence or security, even both and being able to collaborate with it to continue improving my skills
 - 📫 How to reach me ... add me on Telegram @Lkodestyle
